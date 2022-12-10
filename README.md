@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @RJJxp, NOW a HR in Xpeng
+- 👀 I’m interested in a lot
+- 🌱 keep reviewing Python, LaTeX
+- 😂 Learning ffmpeg
