@@ -1,4 +1,6 @@
-- 👋 Hi, I’m @RJJxp, NOW a HR in Xpeng
+- 👋 Hi, I’m @RJJxp, USED to a HR in Xpeng for 2 YEARS
+- 🤣 NOW, I get back to MAP department where I belong
+- 🤷‍♂️ NOT EASY BUT WORTH TRYING
 - 👀 I’m interested in a lot
 - 🌱 keep reviewing Python, LaTeX
 - 😂 Learning ffmpeg
