@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @RJJxp, USED to a HR in Xpeng for 2 YEARS
+- 👋 Hi, I’m @RJJxp, USED to a HR in Xpeng
 - 🤣 NOW, I get back to MAP department where I belong
 - 🤷‍♂️ NOT EASY BUT WORTH TRYING
 - 👀 I’m interested in a lot
